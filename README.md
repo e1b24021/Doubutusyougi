@@ -1,1 +1,1 @@
-# Doubutusyougi
+# Doubutsu
